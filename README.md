@@ -19,9 +19,8 @@ Here are some ideas to get you started:
 ### who is liv? 👩🏻🎀 <hr>
 ![gile](gua.jpg)
 
-I'm a **future** full stack developer lol, but i also want to become an app developer or game developer. I'm also interested in learning about AI/ML and cyber security as well. To be honest i wanna learn everything.. will make it happen cuz ***I'M AMAZING***🩷
+
 
 - 🌱 I’m currently learning many things,
-- ⚡ Fun fact: i am pretty, breathtaking, smart and awesome!!
 
 ![yey](egila.jpg)
